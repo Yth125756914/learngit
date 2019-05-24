@@ -1,3 +1,3 @@
 fuck liuwang mother
 fuck guozhi mother
-fuck huang'an mothte
+fuck huang'an mother
